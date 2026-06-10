@@ -1,6 +1,9 @@
 Aquí tenéis el enlace chicos. Perdón por no ponerlo direcatamente, es que si no me borran el video y me meten Strike. 
+
+RECORDAR QUE HAY UNA CONTRASEÑA
 ----------------------------------------------------------------------------------------------------------------------------------------------
-Contraseña: ANIMAJUEGOS
+·Contraseña: ANIMAJUEGOS
+
 https://www.mediafire.com/file/q474ojiyt9adtwo/Proyecto-SA_PC_Edici%25C3%25B3n_Vanilla_Definitiva_By_AnimaJuegos.rar/file
 ----------------------------------------------------------------------------------------------------------------------------------------------
 
